@@ -12,3 +12,6 @@ Büyük telden üfledik büyük baloncuklar oluştu.
 Küçük telden üfledik küçük baloncuklar oluştu.
 Ama büyük telden üflemek zordu çünkü tel balonları tutmadı.
 
+ZEYNEP ECE KİRAZ 9-D 615
+AYŞE İKBAL ÇAL   9-D 597
+SİMA NUR BEYAZ   9-D 606
